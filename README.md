@@ -1,5 +1,5 @@
 # 💫 About Me:
-⚡ Fun fact: I produce music too!
+⚡ Fun fact: I also create music! 🎵
 
 
 # 💻 Tech Stack:
